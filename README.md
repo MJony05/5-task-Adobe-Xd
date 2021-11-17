@@ -1,2 +1,2 @@
-# 6-task-Adobe-Xd
+# 5-task-Adobe-Xd
 17ta rasmni Adobe Xd da chizish
